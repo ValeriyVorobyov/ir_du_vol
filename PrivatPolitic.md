@@ -183,3 +183,4 @@ You are advised to review this Privacy Policy periodically for any changes. Chan
 # Contact Us
 
 If you have any questions about this Privacy Policy, You can contact us:
+E-mail: valeriy4182848@gmail.com
